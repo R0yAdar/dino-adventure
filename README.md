@@ -15,5 +15,6 @@ I can't help but feel that I just wrote a diary entry into my GitHub. But honest
 
 It's 1:28 AM 4.5.2026, the game was finalized around june 2021. I'm heading to finish watching Mad Men S5E06, good night.
 
-<img width="640" height="400" alt="ezgif-157b505752f59cd4" src="https://github.com/user-attachments/assets/c57f1ba7-3d45-4f71-b941-4261f153e6d9" />
 <img width="640" height="400" alt="dinogif" src="https://github.com/user-attachments/assets/b3a8c942-b1dc-4a26-a151-e4025a1e6761" />
+<img width="640" height="400" alt="ezgif-157b505752f59cd4" src="https://github.com/user-attachments/assets/c57f1ba7-3d45-4f71-b941-4261f153e6d9" />
+
